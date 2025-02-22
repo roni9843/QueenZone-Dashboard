@@ -5,7 +5,7 @@ Hhhhh.... DujedGxgxxGggfccccDdGggg HhGdhddHggvTtdddFfftHeheheeFsgsgdrtyghTtevvdv
 ... ----bbrrhr---.. -.....------------.  -----.. -r-----.    M. N------ghghwerwerwerwer
 ......gfcc..... ------vrveve.gh. -------.  Bb. Bb-----------------------p---.  ----------------eee--ee------------------------------edsdas
 .........--.. -----------..       .....bbb . Bbbvvyttryyt. ----...... ------------... -----ytutyutyutyut
-.. ....... -----.. ----......    Hdggv.... Gg. Vvvfdd
+.. ....... -----..hehdh ----......    Hdggv.... Gg. Vvvfdd
 ---..... Cc......   .. -----.... ........ ...... .----------.. ---------hhh...-.    Gh--------------.. N. N. B----------
 ... Rbbhfirhr.....  Nn.  ------------=.gggg. Rrrrvvvbr==--hchd---.. ....... . -----.. ---------------.   B.  H. H. H. H. -----=====-----... Gggtfdddggyy
 ---------ব rrdbbd-----___... ---........ ...  ---.. ---.  ----------------
