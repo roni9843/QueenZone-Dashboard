@@ -3,7 +3,7 @@ HsbsbYsydydHhhhh.... DujedGxgxxGggfccccDdGggg HhGdhddHggvTtdddFfftHeheheeFsgsgdr
 ..... ...---
 --.. .......... Gg----------------.   Bb. ---... -------========----------jiijjii
 ... ----bbrrhr---.. -.....------------.  -----.. -r-----.    M. N------ghghwerwerwerwer
-......gfcc..... ------vrveve.gh. -------.  Bb. Bb-----------------------p---.  ----------------eee--ee------------------------------edsdas
+......gfccbdbdbd..... ------vrveve.gh. -------.  Bb. Bb-----------------------p---.  ----------------eee--ee------------------------------edsdas
 .........--.. ----------bdbd-..       .....bbb . Bbbvvyttryyt. ----...... ------------... -----ytutyutyutyut
 .. ....... -----..hehdh ----......    Hdgbdbdbdgv.... Gg. Vvvfdd
 ---..... Cc......   .. -----.... ........ ...... .----------.. ---------hhh...-.    Gh--------------.. N. N. B----------
