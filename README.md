@@ -6,7 +6,7 @@ HehsHsbsbYsydydHhhhh.... DujedGxgxxGggfccccDdGggg HhGdhddHggvTtdddFfftHeheheeFsg
 ......gfccbdbdbd..... ------vrveve.gh. -------.  Bb. Bb-----------------------p---.  ----------------eee--ee------------------------------edsdas
 .........--.. ----------bdbd-..       .....bbb . Bbbvvyttryyt. ----...... ------------... -----ytutyutyutyut
 .. ....... -----..hehdh ----......    Hdgbdbdbdgv.... Gg. Vvvfdd
----..... Cc......   .. -ggg----.... ........ ...... .----------.. ---------hhh...-.    Gh--------------.. N. N. B----------
+---..... Cc......   .. -ggg----.... ...fgf..... ...... .----------.. ---------hhh...-.    Gh--------------.. N. N. B----------vvvggfgg
 ... Rbbhfirhr.....  Nn.  ------------=.gggg. Rrrrvvvbr==--hchd---.. ....... . -----.. ---------------.   B.  H. H. H. H. -----=====----whhehs-... Gggtggggfdddggyy
 ---------ব rrdbbd-----___... ---........ ...  ---.. ---.  ----------------
 --.  J.  J---............  ----........ . -.ffber.hdhmndhdhddshshs Dysyhee.......... Bbb.  D.   D. Dd...... ---.. -----------... 
