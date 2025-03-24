@@ -1,4 +1,4 @@
-YdyryrTtggYHddhdbdUrjrjrYyytgghgfgHUdhdhhdHehsHsbsbYsydydHhhhh.... DujedGxgxxGggfccccDdGggg HhGdhddHggvTtdddFfftHeheheeFsgsgdrtyghTtevvdvdJjwjwhHhehehehGffgdg.          GfdgxfEeeshhesTttggTtttcccTyyyTtrrrrTtgbtntttEewwwwwwwDeueeeHggffNn.  NnnHseeeJjgggNdndddsBbssJjhhJjhgHbynggsdd.  Dd.   F.. D.    D.  SeGdhh5tttsdBbbccকি kkkHhffGggddd  Ff hhf Hhhee.  NjgKs.   E.      E. EU jjhNhhjdddd     D.   Ds.  N. N.  ... B   N.  .    B. B.  .   B. B.  I   H.. D. S. EBb.  ....  N.  .   . ..  B. B.   .. ... ... .. Gggf------.  Hg-----hh--.... .... ..yfhhfheyeye ... Hgrhrhrg...... .. ..bbrnr. ... .. ..jdd
+YyyygYdyryrTtggYHddhdbdUrjrjrYyytgghgfgHUdhdhhdHehsHsbsbYsydydHhhhh.... DujedGxgxxGggfccccDdGggg HhGdhddHggvTtdddFfftHeheheeFsgsgdrtyghTtevvdvdJjwjwhHhehehehGffgdg.          GfdgxfEeeshhesTttggTtttcccTyyyTtrrrrTtgbtntttEewwwwwwwDeueeeHggffNn.  NnnHseeeJjgggNdndddsBbssJjhhJjhgHbynggsdd.  Dd.   F.. D.    D.  SeGdhh5tttsdBbbccকি kkkHhffGggddd  Ff hhf Hhhee.  NjgKs.   E.      E. EU jjhNhhjdddd     D.   Ds.  N. N.  ... B   N.  .    B. B.  .   B. B.  I   H.. D. S. EBb.  ....  N.  .   . ..  B. B.   .. ... ... .. Gggf------.  Hg-----hh--.... .... ..yfhhfheyeye ... Hgrhrhrg...... .. ..bbrnr. ... .. ..jdd
 .  . .. ...fgg .. .. .. .. .. Ddbgggcffdse. .. .. .. .. .. . .. ..  D. Fdd....    ------====-------
 ..... ...---bhhh
 --..gqgw ....heheg...... Gg----------------.   Bb. ---... -------========----------jiijjii
@@ -7,7 +7,7 @@ YdyryrTtggYHddhdbdUrjrjrYyytgghgfgHUdhdhhdHehsHsbsbYsydydHhhhh.... DujedGxgxxGgg
 .........--.. ----------bdbd-..       .hh....bbb . Bbbvvyttryyt. ----...... ------------... -----ytutyutyutyut
 .. ....... -----..hehdh ----......    Hdgbdbdbdgv.... Gg. Vvvfddggftf
 ---..... Cc......   .. -ggg----.... ...fgf..... ...... .----------.. ---------hhh...-.bhttff    Gh--------------.. N. N. B----------vvvggfgg
-... Rbbhfirhshdhhdr.....  Nn.  ------------=.gggg. Rrrrvvvbr==--hchd---.. ....... . -hhtrrffg----.. ---------------.   B.  H. H. H. H. -----=====----whhehs-... Gggtggggfdddggyy
+... Rbbhfirhshdhhdr.....  Nn.  ------------=.gggg.yyyygghj Rrrrvvvbr==--hchd---.. ....... . -hhtrrffg----.. ---------------.   B.  H. H. H. H. -----=====----whhehs-... Gggtggggfdddggyy
 ---------ব rrdbbd-----___... ---........ ...  ---.. ---.  ----------------
 --.  J.  J---............  ----........ . -.ffber.hdhmndhdhddshshs Dysyhee.......... Bbb.  D.   D. Dd...... ---.. -----------... 
 ... ... ................ ... . ----...... --dd---....... . ..... --... -------ndjd
